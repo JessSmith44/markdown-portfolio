@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+1.)slothes
+
+2.)crochet
+
+3.)gaming
